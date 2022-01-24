@@ -5,3 +5,5 @@
 - **Portanto, se vocês comem , ou bebem ou fazem qualquer outra coisa, façam tudo para a glória de Deus** :raised_hands: _1Co 10.31NAA_
 
 - **Porque a sua ira dura só um momento, mas o seu favor dura a vida inteira. O choro pode durar uma noite, mas a alegria vem pela manhã.** :raised_hands: _Sl 30.5 NAA_
+
+- **Portanto, ame o Senhor, seu Deus, de todo o seu coração, de toda a sua alma e com toda a sua força.** :raised_hands: _Dt 6.5 NAA_
