@@ -9,3 +9,5 @@
 - **Portanto, ame o Senhor, seu Deus, de todo o seu coração, de toda a sua alma e com toda a sua força.** :raised_hands: _Dt 6.5 NAA_
 
 - **Portanto, se vocês foram ressucitados juntamente com Cristo, busquem as coisas lá do alto, onde Cristo vive, assentado à direita de Deus** :raised_hands: _Cl 3.1 NAA_ 
+
+- **O Senhor é o meu pastor, nada me faltará** :raised_hands: _Sl. 23.1_
