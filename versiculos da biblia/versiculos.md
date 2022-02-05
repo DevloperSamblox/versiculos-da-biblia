@@ -13,3 +13,5 @@
 - **O Senhor é o meu pastor, nada me faltará** :raised_hands: _Sl. 23.1_
 
 - **A pessoa boa tira o bem do bom tesouro  do coração, e a pessoa má tia o mal do mau tesouro; porque a boca fala do que está cheio o coração.** :raised_hands: _Lc 6.45 NAA_
+
+- **Ele, porém, disse: "por que todo esse choro? Assim vocês me partem o coração! Estou pronto não apenas para ser preso em Jerusalém, mas para morrer pelo Senhor Jesus".** :raised_hands: _Atos 21.13 NAA_
