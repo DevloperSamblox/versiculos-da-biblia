@@ -10,8 +10,6 @@
 
 - **Portanto, se vocês foram ressucitados juntamente com Cristo, busquem as coisas lá do alto, onde Cristo vive, assentado à direita de Deus** :raised_hands: _Cl 3.1 NAA_ 
 
-- 
-
 - **A pessoa boa tira o bem do bom tesouro  do coração, e a pessoa má tia o mal do mau tesouro; porque a boca fala do que está cheio o coração.** :raised_hands: _Lc 6.45 NAA_
 
 - **Ele, porém, disse: "por que todo esse choro? Assim vocês me partem o coração! Estou pronto não apenas para ser preso em Jerusalém, mas para morrer pelo Senhor Jesus".** :raised_hands: _Atos 21.13 NAA_
